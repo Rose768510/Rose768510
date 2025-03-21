@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ambitious projects.
 - 📫 How to reach me? By roseupwork25@gmail.com :).
 - 😄 Pronouns: I'm girly.
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I'm a little bit hilarious so working with can't be boring :).
 
 <!---
 Rose768510/Rose768510 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
